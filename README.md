@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @H1
+- 👋 Hi, I’m @IHI
 
 - 👀 I'm interested in programming -̈
 - 🌱 I'm learning it right now -̈
